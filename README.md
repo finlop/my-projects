@@ -1,1 +1,1 @@
-this is for companies to see what work/research i have completed.
+This is for companies to see what work/research I have completed.
